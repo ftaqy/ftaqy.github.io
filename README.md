@@ -1,2 +1,0 @@
-# ftaqy.github.io
-uwow
